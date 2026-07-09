@@ -27,7 +27,7 @@ I have 4+ years of experience building enterprise web applications using React, 
 
 ## Contact
 
-📧 yourmail@email.com
+📧 krupankn1998@gmail.com
 
 LinkedIn:
-https://linkedin.com/in/yourprofile
+[https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/krupan-k-n-3a5186208?utm_source=share_via&utm_content=profile&utm_medium=member_android)
